@@ -1,4 +1,9 @@
-### Hi there 👋
+### Hi there, I'm @sophietheking 👋
+
+- Pronouns: she/her
+- Please ask me for pictures of my dog 🐕
+- My interests are food (big cheese lover 🧀), true crime, skin care, books (mostly fantasy, true crime, thrillers, horror) and slasher movies.
+- Find me on [LinkedIn here](https://www.linkedin.com/in/sophiedeconingh/) 💕
 
 <!--
 **sophietheking/sophietheking** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
