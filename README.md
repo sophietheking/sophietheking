@@ -2,7 +2,7 @@
 
 - Pronouns: she/her
 - Please ask me for pictures of my dog. 🐕
-- My interests are food (big cheese lover 🧀), true crime, skin care, books (mostly fantasy, true crime, thrillers, horror) and slasher movies.
+- My interests are food (big cheese lover 🧀), true crime, skin care, books (mostly fantasy, true crime, thrillers, horror) and horror movies.
 - Find me on [LinkedIn here](https://www.linkedin.com/in/sophiedeconingh/) 💕
 
 <!--
